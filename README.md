@@ -1,17 +1,17 @@
-<h1 align="center">✨ IMMU MD – Premium Official Links ✨</h1>
+<h1 align="center">✨ IMMU MD –  Official Links ✨</h1>
 
 <p align="center">
   <img src="https://i.postimg.cc/256Jz2ND/Picsart-25-11-16-03-17-59-578.jpg" width="180"/>
 </p>
 
 <p align="center">
-  <b><i>IMMU MD – Stylish | Premium | Professional</i></b>
+  <b><i>IMMU MD – Whatsapp Best Bot</i></b>
 </p>
 
 ---
 
-## 🎨 **IMMU MD – Stylish Color Changing Name**
-🔥 **IMMU MD** (Premium Styled)
+## 🎨 **IMMU MD – SUPER FAST POWERFUL*
+🔥 **❤🚩 ()
 
 ---
 
