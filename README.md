@@ -10,8 +10,8 @@
 
 ---
 
-## 🎨 **IMMU MD – SUPER FAST POWERFUL*
-🔥 **❤🚩 ()
+## 🎨 *IMMU MD – SUPER FAST POWERFUL*
+🔥🤍🚩 
 
 ---
 
@@ -23,12 +23,11 @@ https://whatsapp.com/channel/0029Vaq4PRsD38CJKXzwmb42
 
 ## ▶️ **Official YouTube Channel**
 👉 Visit Channel  
-https://youtube.com/@immumdbot?si=jqPlNBPaTzw3vz9G
+https://youtube.com/@immumdbot
 
 ---
 
-## 💬 **WhatsApp Help (Contact)**
-📞 +92 301 9178972  
+## 💬 **WhatsApp Help (Contact)**  
 👉 WhatsApp Direct Chat  
 https://wa.me/923019178972
 
@@ -42,4 +41,4 @@ https://chat.whatsapp.com/JQTH0GwURpjIJEzhpcFosO?mode=wwt
 
 <br><br>
 
-<h3 align="center">© 2025 IMMU MD — All Rights Reserved.</h3>
+<h3 align="center">© 2025 IMMU MD — All Rights Reserved. Made With 🤍 By 𝐈𝐌𝐌𝐔 𝐌𝐃 </h3>
